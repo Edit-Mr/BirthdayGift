@@ -8,7 +8,7 @@
 
 ## 🦊 毛茸茸
 
-我喜歡毛茸茸的東西。如果你想送我玩偶類的，**不要**送那種表面光滑的，很大機率會踩雷。像是[拉拉熊](https://www.google.com/search?q=%E6%8B%89%E6%8B%89%E7%86%8A)、[吉伊卡哇](https://www.google.com/search?q=%E5%90%89%E4%BC%8A%E5%8D%A1%E5%93%87)這種，拜託不要。[天祿](https://www.google.com/search?q=%E6%9C%89%E7%8D%B8%E7%84%89+%E5%A4%A9%E7%A5%BF&udm=2)這種，非常可以。[福瑞](https://emtech.cc/post/furry-intro/)刻板印象喜歡的東西我大多都蠻喜歡的。
+我喜歡毛茸茸的東西。如果你想送我玩偶類的，**不要**送那種表面光滑的，很大機率會踩雷。像是[拉拉熊](https://www.google.com/search?q=%E6%8B%89%E6%8B%89%E7%86%8A)、[吉伊卡哇](https://www.google.com/search?q=%E5%90%89%E4%BC%8A%E5%8D%A1%E5%93%87)這種，拜託不要。[天祿](https://www.google.com/search?q=%E6%9C%89%E7%8D%B8%E7%84%89+%E5%A4%A9%E7%A5%BF&udm=2)這種，非常可以。[福瑞](https://emtech.cc/post/furry-intro/)刻板印象喜歡的東西 (玩具、贈圖之類的) 我大多都蠻喜歡的。
 
 ## 購物車
 
@@ -27,3 +27,5 @@
 * Asiaboy禁藥王 & Lizi栗子 演唱會門票
 * Ableton Live 12
 * OpenAI Credit
+
+以上只是說說而已。只要 FB 通知時讓你想起今天是我生日，跟我說聲生日快樂就夠我開心一整年了。
