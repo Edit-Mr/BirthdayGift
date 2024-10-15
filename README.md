@@ -6,6 +6,7 @@
 
 我的生日是 5 月 12 日。如果你怕忘記可以 [加入毛哥EM生日到行事曆](https://calendar.google.com/calendar/r/eventedit?text=毛哥EM生日&dates=20070512T000000Z/20070512T010000Z&recur=RRULE:FREQ=YEARLY)
 
+## ⚡️ 電
 如果你怕踩到雷，送我有電的東西就對了。3C、電子元件等等都好，就算你送我郊狼我也會非常開心的。如果電阻要幾百歐太貴要送我 LED 也行。
 
 ## 🦊 毛茸茸
