@@ -7,20 +7,38 @@
 我的生日是 5 月 12 日。如果你怕忘記可以 [加入毛哥EM生日到行事曆](https://calendar.google.com/calendar/r/eventedit?text=毛哥EM生日&dates=20070512T000000Z/20070512T010000Z&recur=RRULE:FREQ=YEARLY)
 
 ## ⚡️ 電
-如果你怕踩到雷，送我有電的東西就對了。3C、電子元件等等都好，~~就算你送我郊狼我也會非常開心的~~。如果電阻要幾百歐太貴要送我 LED 也行。
+
+如果你怕踩到雷，送我有電的東西就對了。3C、iOT、電子元件等等都好，~~就算你送我郊狼我也會非常開心的~~。
 
 ## 🦊 毛茸茸
 
-我喜歡毛茸茸的東西。如果你想送我玩偶類的，**不要**送那種表面光滑的，很大機率會踩雷。像是[拉拉熊](https://www.google.com/search?q=%E6%8B%89%E6%8B%89%E7%86%8A)、[吉伊卡哇](https://www.google.com/search?q=%E5%90%89%E4%BC%8A%E5%8D%A1%E5%93%87)這種，拜託不要。[天祿](https://www.google.com/search?q=%E6%9C%89%E7%8D%B8%E7%84%89+%E5%A4%A9%E7%A5%BF&udm=2)，非常可以。[福瑞](https://emtech.cc/post/furry-intro/)刻板印象喜歡的東西我大多都蠻喜歡的。如果是贈圖我一定會回贈。
+我喜歡毛茸茸，[福瑞](https://emtech.cc/post/furry-intro/)刻板印象喜歡的東西我大多都蠻喜歡的。如果是贈圖我一定會回贈。
 
-對了我蠻想要一個可愛的藍色項圈（不是你想的那樣，給我家的貓的，但你挑你覺得適合我的就可以了。）
+
+### 玩偶
+
+* ❌ [拉拉熊](https://www.google.com/search?q=%E6%8B%89%E6%8B%89%E7%86%8A)
+* ❌ [吉伊卡哇](https://www.google.com/search?q=%E5%90%89%E4%BC%8A%E5%8D%A1%E5%93%87)
+
+拜託不要
+
+* ✅ [天祿](https://www.google.com/search?q=%E6%9C%89%E7%8D%B8%E7%84%89+%E5%A4%A9%E7%A5%BF&udm=2)
+* ✅ [薩卡班甲魚](https://www.google.com/search?q=%E8%96%A9%E5%8D%A1%E7%8F%AD%E7%94%B2%E9%AD%9A)
+
+
+非常可以。
+
+
+對了我很想要一個可愛的藍色項圈（不是你想的那樣，給我家的貓的）
+
+<!-- 好吧確實是我自己想要 -->
 
 ## 購物車
 
 下面這些東西是我想買但還沒買的。
 
 * Pioneer DJ DDJ-FLX4 - 考完大學想買來玩
-* 硬碟
+* 硬碟 - 給我的樹莓派
 * 顯卡 - 不太玩遊戲、跑跑 AI 就好
 * 羅技 Lift 滑鼠 - 用觸控板手快斷了
 * 3D 列印耗材 - PLA、PETG、TPU 都可以
@@ -28,7 +46,7 @@
 * 電子元件 - 什麼都可以
 * 貼紙機 - 有點想要，整理線材
 * 好坐的椅子
-* Asiaboy禁藥王 & Lizi栗子 / Alan Walker / 草東演唱會門票
+* 草東 / Alan Walker / Asiaboy禁藥王 & Lizi栗子 演唱會門票
 * Ableton Live 12
 
 以上只是說說而已，其實比較是我自己想存錢買的或想要但沒那麼重要的購物清單。老實說只要 FB 通知時讓你想起今天是我生日，跟我說聲生日快樂就夠我開心一整年了。
